@@ -1,0 +1,3 @@
+- Animator / Programmer
+- Game Dev
+- Part-time word salad scientist
